@@ -1,1 +1,0 @@
-# Rayhan_PAM-LAN
